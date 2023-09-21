@@ -1,1 +1,1 @@
-# oasisinfobyte
+https://saaammiii.github.io/oasisinfobyte/
